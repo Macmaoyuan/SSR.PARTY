@@ -1,2 +1,2 @@
 # SSR.PARTY  新网址
-https://ssr.onl
+点此进入>>>  https://ssr.onl
